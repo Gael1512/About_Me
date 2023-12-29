@@ -9,7 +9,7 @@ Always passionate about Technology, Games and Culture. My hobbies are:
 - Play video-games :video_game:
 - Watch animes :tv:
 - Read books and mangas :books: 
-- Hangout with my friends :elf: :mage_men: :man_beard: :child:
+- Hangout with my friends :elf: 🧙‍♂️: 🧔: :child:
 
 </p>
 
